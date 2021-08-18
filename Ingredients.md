@@ -1,0 +1,1 @@
+ingredients for fruit cake - 2 bananas, 2 cup maida, 1 cup refined oil, 1 cup powdered suger, 1/4th teaspoon baking powder, 1/2 teaspoon baking soda, dry fruits for garnishing.

@@ -1,0 +1,3 @@
+// Mash 2 bananas properly, add sugar to it then mix, add edible oil and mix it well than add maida(after seiving) little by little and rotate in one direction either clockwise or anticlockwise. Add baking soda and baking powder.Dough is ready now to bake.Take a cake pan then coat some edible oil inside the pan and sprikle some dry maida on it.In place of maida a oil paper can also be sticked inside the pan. Then just bake and eat.
+
+Thankyou!!!
